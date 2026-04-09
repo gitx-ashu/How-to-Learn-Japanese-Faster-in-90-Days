@@ -1,4 +1,4 @@
-# **How to Learn Japanese Faster (Applied to This Plan)**
+# **How to Learn Japanese Faster in 90 Days (Applied to This Plan)**
 
 In order to learn Japanese within 90 days, we’re not simply “studying” – we’re **building an architecture of our minds**. The Japanese language is a high context, agglutinative language that follows a subject-object-verb syntax. In order to learn this language in such little time, you have to break away from English-Japanese translation and use **Radical Deconstruction** and **Comprehensible Input**.
 
