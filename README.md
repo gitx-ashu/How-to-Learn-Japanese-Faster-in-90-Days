@@ -1,6 +1,7 @@
 # **How to Learn Japanese Faster in 90 Days (Applied to This Plan)**
+When learning Japanese within three months implies that all you need to do is occasionally flip through a textbook, you are in for disappointment. In order to succeed in such a challenging 12-week journey, I needed to switch my approach from merely studying the language to constructing a logic engine within my mind. I emptied my schedule and postponed all other linguistic pursuits to concentrate exclusively on this mammoth jigsaw puzzle.
 
-In order to learn Japanese within 90 days, we’re not simply “studying” – we’re **building an architecture of our minds**. The Japanese language is a high context, agglutinative language that follows a subject-object-verb syntax. In order to learn this language in such little time, you have to break away from English-Japanese translation and use **Radical Deconstruction** and **Comprehensible Input**.
+The strategy that I used for learning Japanese was as follows: I visualized learning Japanese as putting together a Lego model in my head; there are the basic blocks consisting of 214 radicals; there are the connectors that are the particles; and there is input to my brain. Now I can understand simple manga, listen to beginner podcasts at 70–80% and communicate in 5-minute conversations.
 
 ---
 
